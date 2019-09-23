@@ -1,1 +1,1 @@
-Lecture 2 lalala~
+Lecture 2
